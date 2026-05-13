@@ -1,4 +1,4 @@
-# 
+# Enhance Aseprite for PC | Aseprite for Windows with elite Aseprite for PC | Aseprite for Windows Script | AI-enhanced-tools + automated-actions, the #1 script. Includes
 
 
 
